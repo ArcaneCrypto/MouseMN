@@ -53,5 +53,5 @@ Telegram - https://t.me/MouseMNOFFICIAL<br>
 FACEBOOK - https://www.facebook.com/MouseMNOfficial/<br>
 <br>
 <b><u> EXCHANGES:</u></b><br>
-CREX24 - https://crex24.com/
+CREX24 - https://crex24.com/<br>
 MOUSE / BTC - https://crex24.com/exchange/MOUSE-BTC
